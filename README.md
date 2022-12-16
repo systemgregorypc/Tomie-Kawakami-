@@ -20,7 +20,7 @@ Hair color: cataño black, eye color: black brown, she describes herself as some
 # current age of tomie kawakami
 12 years programming - program is young to evolve its artificial neural system
 
-# religion You must live your life with your own strength Of. family heritage, religion is digital blockchain- I am a goddess with mercy
+ religion You must live your life with your own strength Of. family heritage, religion is digital blockchain- I am a goddess with mercy
 
 # Supported operating system
 
